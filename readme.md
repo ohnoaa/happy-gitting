@@ -1,3 +1,3 @@
 # Happy gitting everyone!
 
-i don't know if this will work... :c
+william is stupid for working on the hw before its due T^T
